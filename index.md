@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Just a place for me to write down literally everything to keep my head clear, i.e stop overthinking and be present.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Hopefully some useful experiences and tips as I'm going with my PhD journey.
